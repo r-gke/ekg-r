@@ -1,3 +1,3 @@
 # ekg-r
 
-Gonbléntl gi bula. Ruim t'édl efitém, m'é-zè ba ?
+Þiz is én Imkrij fèljèm. Zdir haltèl du èmtélztamt.
