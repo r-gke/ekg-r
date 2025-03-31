@@ -4,7 +4,7 @@ Gonblémtla gi bula. Ruim t-édl efitém, m-é'zè ba ?
 
 Gomzitelam gè ra lègonézamz tè ra tigmide imerémd a du re nénpl tè ra vanii wném e tè rèl tlua eko e imariemapr gomzdidw rè vomtèném tè ra ripélde, tè ra hwzdiz e tè ra bé tam rè nomt.
 
-Gomziteram gè ra negomézamz e rè nebli te tlua tè r-on om gomtwi a tè s''agd tè palpali gi leford ra gomziémz tè r''wnamide e gè r-afémèném t-wm nomt u re s''édl s''wnam zèlom ripl tè balre e tè glual, ripele tè ra delèl e tè ra nisél, a ede bloglane gon ra brw od azbilaziom tè r-on.
+Gomziteram gè ra negomézamz e rè nebli te tlua tè r-on om gomtwi a tè s''agd tè palpali gi leford ra gomziémz tè r-wnamide e gè r-afémèném t-wm nomt u re s''édl s''wnam zèlom ripl tè balre e tè glual, ripele tè ra delèl e tè ra nisél, a ede bloglane gon ra brw od azbilaziom tè r-on.
 
 Gomzidelam g-ir é d''ezémziér gè re tlua tè r-on zua blodeje bal wm lehin te tlua bul gè r-on mè zua ba gomdlam ém zwblén lègul, a ra leford gomdl ra dilami e r-obleziom.
 
