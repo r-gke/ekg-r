@@ -1,6 +1,6 @@
 # ekg-r
 
-Gonblémtla gi bula. Ruim t-édl efitém, m'é'zè ba ?
+Gonblémtla gi bula. Ruim t-édl efitém, m-é'zè ba ?
 
 Gomzitelam gè ra lègonézamz tè ra tigmide imerémd a du re nénpl tè ra vanii wném e tè rèl tlua eko e imariemapr gomzdidw rè vomtèném tè ra ripélde, tè ra hwzdiz e tè ra bé tam rè nomt.
 
